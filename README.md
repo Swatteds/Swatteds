@@ -1,3 +1,11 @@
+Easy to use tool just run simple
+if u think its something else then dont be here
+simple as that
+anyway
+password is just root then botboy is the password
+
+
+
 - 👋 Hi, I’m @Swatted
 - 👀 I’m interested in your mom :)
 - 🌱 I’m currently learning bed
